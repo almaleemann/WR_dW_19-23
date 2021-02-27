@@ -7,3 +7,4 @@ Einen weiteren Punkt der Personalmotivation durch pekuniäre Anreize wäre die b
 
 Nebst den oben erwähnten Vorteilen gibt es auch bei den pekuniären Anreizen Nachteile. Bei der Erfolgsbeteiligung kann in verschiedenen Fällen sogar kontraproduktiv wirken. Mitarbeitende, die in einem Jahr aufgrund ihrer besonderen Leistung eine Prämie von 500 Franken erhalten haben, werden im nächsten Jahr eine weitere Prämie in Höhe von 250 Franken nicht als motivierenden Anreiz betrachten, sondern eher als Kürzung ihrer Entlohnung. 
 
+Auch wenn die Erfolgsbeteiligung nicht motivierend ist, sieht man bei den betrieblichen Zusatzleistungen praktisch nur Voreile. Somit komme ich zum Schluss, dass die pekuniären Anreize im grossen und ganzen motivierend für die Arbeitnehmenden sind. 
